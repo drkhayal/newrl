@@ -57,9 +57,13 @@ Twitter : https://twitter.com/newrl_layer1
 
 website : https://newrl.net/
 
------------------------------------------------------------------------------------------------------------------------
+---------------------------------------------------------------------------
 
-Bizi İzləyin.
+Bizi izləyin
+Telegram: https://t.me/drtestnet
 
-Telegram Youtube Twitter
+Youtube: https://www.youtube.com/c/KhayalAll/videos
+
+Twitter: https://twitter.com/xeyalall
+
 
